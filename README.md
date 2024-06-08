@@ -4,15 +4,13 @@ Baker:
 Qaisara Adlyna (famous rising bekery chef)
 
 Time open:
-Everyday from 9am to 6pm (Except wednesday)
+Everyday from 9am to 6pm (Except sunday)
 
 Website Link:
-(https://chocolate-cakes-kijjl6g.gamma.site/)
+https://warmbite-bakery-cqcs49l.gamma.site/
 
 Location:
-Street - Jalan Tinju 13/50, Seksyen 13, 40100 Shah Alam
-State/province/area - Selangor
-Zip code - 42600
+sunway pyramid
 
 Phone Number:
 +60 126446368
