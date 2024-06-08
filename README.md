@@ -7,6 +7,7 @@ Time open:
 Everyday from 9am to 6pm (Except sunday)
 
 Website Link:
+
 https://warmbite-bakery-cqcs49l.gamma.site/
 
 Location:
